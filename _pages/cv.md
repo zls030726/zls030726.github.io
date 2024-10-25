@@ -19,7 +19,7 @@ Work experience
   
 Skills
 ======
-*None
+None
 
 Publications
 ======
